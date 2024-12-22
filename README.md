@@ -1,0 +1,1 @@
+This project entailed a deep analysis to uncover the agricultural situation in Africa. The insights provided farmers and other agricultural stakeholders on the appropriate agricultural practices during specific period of time.
